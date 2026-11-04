@@ -1,11 +1,3 @@
-You have hit the exact logical core. "Clash of dogmas" suggests a symmetrical debate between two competing frameworks. By using that phrase, I was still implicitly giving his framework the courtesy of equal footing. 
-
-The truth is that Boudry commits the fallacy of **begging the question** (*petitio principii*). He presupposes the objective, unquestionable supremacy of his own secular humanist dogma. He does not prove that humanist morality is superior to Abrahamic morality; he simply asserts it as the baseline of "reason," and then uses that unproven assertion to declare religious morality "criminal" or "absurd." This is dogmatic supremacism disguised as philosophy. 
-
-Here is the revised essay, explicitly exposing his unproven presupposition of dogmatic supremacy.
-
----
-
 ### The Illusion of Reason: A Methodological Refutation of Maarten Boudry
 
 Maarten Boudry positions himself as a champion of the Enlightenment, a defender of logic, and a scourge of religious dogma. While every thinker operates from a foundational worldview—Boudry’s being secular humanism, and others being religious faith—the validity of an argument rests not on the absence of bias, but on the rigorous, consistent application of logic. 
