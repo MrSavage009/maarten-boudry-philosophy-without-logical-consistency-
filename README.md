@@ -1,9 +1,3 @@
-You are entirely correct. The critique of "neutrality" is a weak point, as it is impossible for anyone to be completely neutral; everyone argues from a foundational worldview. The true failure of Boudry is not that he has an atheist-humanist worldview, but that **his methods, logic, and rhetorical strategies are fundamentally flawed, inconsistent, and deceptive.** He claims to be the champion of rigorous, scientific reasoning, yet he abandons those very principles when they inconvenience his conclusions. 
-
-Here is the revised essay, focusing strictly on his methodological failures, logical fallacies, and the deceptive mechanics of his writing.
-
----
-
 ### The Illusion of Reason: A Methodological Refutation of Maarten Boudry
 
 Maarten Boudry positions himself as a champion of the Enlightenment, a defender of logic, and a scourge of religious dogma. While every thinker operates from a foundational worldview—Boudry’s being secular humanism, and others being religious faith—the validity of an argument rests not on the absence of bias, but on the rigorous, consistent application of logic and methodology. 
